@@ -1,2 +1,8 @@
 # stunning-doodle
-exercise Clone, Pull, Push w/ partner
+laura
+
+72
+
+spanish
+
+iranian
